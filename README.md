@@ -1,0 +1,2 @@
+# ALLAH-O-AKBA
+Subahaan ALLAH
